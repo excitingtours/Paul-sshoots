@@ -1,1 +1,1 @@
-# Paulwildlifephotograhy
+# Paulwildlifephotography
